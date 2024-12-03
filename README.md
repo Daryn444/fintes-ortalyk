@@ -1,1 +1,1 @@
-# fintes-ortalyk
+# fitnes-ortalyk
